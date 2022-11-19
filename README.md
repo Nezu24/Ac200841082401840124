@@ -7,5 +7,4 @@
 2. I play sports 🏸
 3. I love the world! 🪐
 
-so cool
 ![so funny](https://www.bworldonline.com/wp-content/uploads/2021/11/laughing-640x427.jpg)
